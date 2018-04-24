@@ -1,0 +1,2 @@
+# maniacZY
+疯子
